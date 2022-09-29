@@ -37,7 +37,7 @@ Nós, pessoas envolvidas ou interessadas na área de Tecnologia, Ciência e Inov
 
 **Assinam:** 
 
-- 
+- Shirleide F. Silva
 - 
 - 
 
